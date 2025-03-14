@@ -14,7 +14,6 @@
 
 - 📫 How to reach me **...jannatulpopy51@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/Ecommerce-p771](https://github.com/Ecommerce-p771)
 
 - ⚡ Fun fact **I Am Funny**
 
